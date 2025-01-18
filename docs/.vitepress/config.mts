@@ -9,10 +9,10 @@ export default defineConfig({
     // https://vitepress.dev/reference/default-theme-config
     base: "/docs-demo/"
 
-    nav: [
+    nav: [{
       { text: '主页', link: '/' },
       { text: '访问案例', link: '/nantong' },
-    ],
+    }],
 
     sidebar: [
       {
