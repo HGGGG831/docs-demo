@@ -7,8 +7,7 @@ export default defineConfig({
   description: "A VitePress Site",
   themeConfig: {
     // https://vitepress.dev/reference/default-theme-config
-    base: "/docs-demo/"
-
+    
     nav: [{
       { text: '主页', link: '/' },
       { text: '访问案例', link: '/nantong' },
