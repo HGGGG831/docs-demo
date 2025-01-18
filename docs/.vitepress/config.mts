@@ -7,11 +7,10 @@ export default defineConfig({
   description: "A VitePress Site",
   themeConfig: {
     // https://vitepress.dev/reference/default-theme-config
-    
-    nav: [{
+    nav: [
       { text: '主页', link: '/' },
       { text: '访问案例', link: '/nantong' },
-    }],
+    ],
 
     sidebar: [
       {
