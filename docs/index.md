@@ -29,7 +29,7 @@ hero:
 features:
   - title: 踏尽千山万水🎯
     details: 创业的路上，困难挑战千千万万
-    link: https://github.com/wlpnz/planktonic-life
+    link: https://github.com/HGGGG831/docs-demo
   - title: 吃尽千辛万苦🌟
     details: 创客们披荆斩棘，一路打怪升级，才从 青铜 变身 王者
   - title: 说尽千言万语🍊
