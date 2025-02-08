@@ -20,11 +20,14 @@ hero:
       text: 南通
       link: /nantong
     - theme: alt
-      text: 泰兴
+      text: 泰州
       link: /taixing
     - theme: alt
-      text: 待定
+      text: 无锡
       link: /api-examples
+    - theme: alt
+      text: 徐州
+      link: /xuzhou
 
 features:
   - title: 踏尽千山万水🎯
