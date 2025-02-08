@@ -23,8 +23,8 @@ export default defineConfig({
           { text: '镇江', link: '/zhenjiang' },
           { text: '南京', link: '/nanjing' },
           { text: '泰州', link: '/taixing' },
-          { text: '无锡', link: '/taixing' },
-          { text: '徐州', link: '/taixing' }
+          { text: '无锡', link: '/wuxi' },
+          { text: '徐州', link: '/xuzhou' }
         ]
         },
         {

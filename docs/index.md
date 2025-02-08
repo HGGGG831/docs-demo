@@ -24,7 +24,7 @@ hero:
       link: /taixing
     - theme: alt
       text: 无锡
-      link: /api-examples
+      link: /wuxi
     - theme: alt
       text: 徐州
       link: /xuzhou
