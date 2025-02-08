@@ -11,6 +11,8 @@ export default defineConfig({
     nav: [
       { text: '主页', link: '/' },
       { text: '访问案例', link: '/nantong' },
+      { text: '友情链接', link: 'friendlinks' },
+
     ],
 
     sidebar: [
@@ -22,8 +24,15 @@ export default defineConfig({
           { text: '南京', link: '/nanjing' },
           { text: '泰兴', link: '/taixing' }
         ]
+        },
+        {
+        text: '友情链接',
+        items: [
+          { text: '江苏企业家公司', link: '/friendlinks' }
+        ]
       }
     ],
+
 
 
     socialLinks: [
