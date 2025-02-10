@@ -24,7 +24,13 @@ export default defineConfig({
           { text: '南京', link: '/nanjing' },
           { text: '泰州', link: '/taixing' },
           { text: '无锡', link: '/wuxi' },
-          { text: '徐州', link: '/xuzhou' }
+          { text: '徐州', link: '/xuzhou' },
+          { text: '常州', link: '/changzhou' },
+          { text: '淮安', link: '/huaian' },
+          { text: '连云港', link: '/lianyungang' },
+          { text: '苏州', link: '/suzhou' },
+          { text: '盐城', link: '/yancheng' },
+          { text: '扬州', link: '/yangzhou' },
         ]
         },
         {

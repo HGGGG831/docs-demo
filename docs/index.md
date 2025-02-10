@@ -28,6 +28,28 @@ hero:
     - theme: alt
       text: 徐州
       link: /xuzhou
+    - theme: alt
+      text: 常州
+      link: /changzhou
+    - theme: alt      
+      text: 淮安
+      link: /huaian
+    - theme: alt      
+      text: 连云港
+      link: /yancheng
+    - theme: alt  
+      text: 连云港
+      link: /lianyungang
+    - theme: alt  
+      text: 苏州
+      link: /suzhou
+    - theme: alt  
+      text: 盐城
+      link: /yancheng
+    - theme: alt  
+      text: 扬州
+      link: /yangzhou
+    
 
 features:
   - title: 踏尽千山万水🎯
