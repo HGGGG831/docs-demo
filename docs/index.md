@@ -3,11 +3,11 @@
 layout: home
 
 hero:
-  name: "江苏口述史收集库"
-  text: "集合了江苏各个地区的访谈记录"
+  name: "“四千四万正当时”"
+  text: "江苏省乡镇企业发展口述史数据库"
   tagline: 持续更新中
   image: 
-    src: /jss.png
+    src: /sqsw3.png
     alt: 背景图
   actions:
     - theme: brand
