@@ -96,3 +96,97 @@
 **张江**：我提醒现在的年轻人——不是说提醒了，就是跟交谈一下经验嘛。不管做什么东西，一定要吃苦耐劳，一往直前。
 
 **李朔源**：好的，非常感谢您的配合支持，我们希望通过这次访谈能够更深入的了解“四千四万精神”的认知实践现状，再次感谢您的参与。
+
+## 中天科技集团有限公司	薛济萍
+https://mp.weixin.qq.com/s/JRT8DxPruZGBwpkaBl7yOQ
+
+## 江苏集萃先进纤维材料研究所有限公司	朱美芳
+https://mp.weixin.qq.com/s/rPCcQI2APcM5hRLAozd9Ug
+
+## 安惠生物科技	陈惠
+https://mp.weixin.qq.com/s/c6a-SQrfPaRhAv9NFhbb6w
+
+## 浩力森	周贤
+https://mp.weixin.qq.com/s/g02gqxRavm53HEAqXWtNBg
+
+## 艾力斯医药	杜锦豪 郭建辉
+https://mp.weixin.qq.com/s/AgMILG0B2d6UawRVWrQqeg
+
+## 四方科技	黄杰
+https://mp.weixin.qq.com/s/gF0gQDxamv6I9hMW9lvkGg
+
+## 钰泰半导体股份有限公司	李翔
+https://mp.weixin.qq.com/s/uDTaeCkxL8CnLFtdLUioPA
+
+## 南通嘉得利安全用品有限公司	花春丽
+https://mp.weixin.qq.com/s/ON0FRtszKb8LA_7Kc0JUGQ
+
+## 先声药业集团有限公司	任晋生
+https://mp.weixin.qq.com/s/e9T3k6VYiXJLypjFuWb3Fw
+
+## 江苏华存电子科技有限公司	李庭育
+https://mp.weixin.qq.com/s/sYUN2Lc0JZYKkj4-dBA5JQ
+
+## 江苏刚正薄板科技有限公司	刘允华
+https://mp.weixin.qq.com/s/rB7XYE5Nfd1uXgF4ksyyZg
+
+## 苏中电池	沈维新
+https://mp.weixin.qq.com/s/cMZgbSvd8lDYolzvvMcYYA
+
+## 江苏金太阳纺织科技股份有限公司	袁氏兄弟
+https://mp.weixin.qq.com/s/3OYNmf1VQmXNimCIBtx98Q
+
+## 通富微电	石磊
+https://mp.weixin.qq.com/s/Am0d95O61cfnMM6W-EFT6w
+
+## 罗莱生活	薛伟成
+https://mp.weixin.qq.com/s/PfDrHCexvaWW2voTAsSE3g
+
+## 通富微电子股份有限公司	石明达
+https://mp.weixin.qq.com/s/qiw8jnoopIf8dA0Pxkbj3w
+
+## 华住集团	季琦
+https://mp.weixin.qq.com/s/jEs8TUHqMhbYPpQcLsyzcg
+
+## 龙信建设集团有限公司	陈祖新
+https://mp.weixin.qq.com/s/Qw7f-I3F83Ok63AlupK1nQ
+
+## 浩力森	祁康雷
+https://mp.weixin.qq.com/s/4EE91aYEjxTBzWWlHUdt-Q
+
+## 江苏国控电力设备有限公司	张晓锋
+https://mp.weixin.qq.com/s/EuiFxMeObHKOuy8VZ8znOg
+
+## 希诺股份有限公司	黄伟军
+https://mp.weixin.qq.com/s/bhi4f_vXQ-id_S-tru1XaQ
+
+## 南通大通宝富风机有限公司	周建诚
+https://mp.weixin.qq.com/s/Mw0Rq58-VSGSfoXCkzYCPQ
+
+## 南通振康焊接机电有限公司	汤子康
+https://mp.weixin.qq.com/s/PRvNpHfNoTDprJm-z9D3Ag
+
+## 南通苏安建设有限公司	席亚萍
+https://mp.weixin.qq.com/s/8rZ7q8NGQeo7-Pp8qeDYaQ
+
+## 南通联荣集团	于永进
+https://mp.weixin.qq.com/s/dLXRuc-hD5EyCbEpvCPtCA
+
+## 格陆博科技有限公司	刘兆勇
+https://mp.weixin.qq.com/s/AIq9t-iCgZCVcitq3oF7Tg
+
+## 江苏如钢薄板科技有限公司	黄永春
+https://mp.weixin.qq.com/s/UST03KbV4BirbYI4hsYOaA
+
+## 江苏恒辉安防股份有限公司	王鹏
+https://mp.weixin.qq.com/s/hNvGhFseSDCv5c3-R6-2Ng
+
+## 通光集团有限公司	张强
+https://mp.weixin.qq.com/s/VrhD5kGQSx0qqmgYOZbMHQ
+
+## 狼山钢绳	顾其林
+https://mp.weixin.qq.com/s/rOSPmrjmZ2TvS_KLjtuBAQ
+
+## 江苏力星通用钢球股份有限公司	施祥贵
+https://mp.weixin.qq.com/s/GHySAsQAca-iJ1s1hGXOvA
+

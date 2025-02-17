@@ -21,7 +21,7 @@ hero:
       link: /nantong
     - theme: alt
       text: 泰州
-      link: /taixing
+      link: /taizhou
     - theme: alt
       text: 无锡
       link: /wuxi
@@ -35,8 +35,8 @@ hero:
       text: 淮安
       link: /huaian
     - theme: alt      
-      text: 连云港
-      link: /yancheng
+      text: 宿迁
+      link: /suqian
     - theme: alt  
       text: 连云港
       link: /lianyungang

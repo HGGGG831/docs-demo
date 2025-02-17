@@ -66,3 +66,30 @@
 **马振宏**：我觉得对于年轻一代啊，首先最重要的就是信心，虽然现在的环境比以前好了，但是困难是一定有很多很多，所以我们要有吃苦的精神，要有到哪里都不怕碰壁的精神，不管有多大的困难，只要能办成事情就是成功。
 
 **李朔源**：好的！非常感谢您的配合，我们青年大学生和企业家会有吃苦的精神和强大的信心，为“四千四万”精神的传承和发展贡献我们的青年力量。
+
+## 江苏南极机械有限责任公司	倪治忠
+https://mp.weixin.qq.com/s/v3o5BaiQoL9EwKN_6FKfZw
+
+## 新时代造船公司	袁凯飞
+https://mp.weixin.qq.com/s/XUppNppX1efreG81VWi5tQ
+
+## 扬子江药业	徐浩宇
+https://mp.weixin.qq.com/s/i6wdvhWjN0K0e26gIftWoQ
+
+## 兴达钢帘线集团	刘锦兰
+https://mp.weixin.qq.com/s/BhOauyUoTClKpZFigdN9rA
+
+## 济川药业	曹龙祥
+https://mp.weixin.qq.com/s/1U42AlR9hoMsStvHJMHbbQ
+
+## 江苏太平洋精锻科技股份有限公司	夏汉关
+https://mp.weixin.qq.com/s/7k8T-HOd3KZECA8JGMwl_w
+
+## 江苏民生重工有限公司	倪加明
+https://mp.weixin.qq.com/s/X0_PrnDL7itjYdLSb1TXOw
+
+## 江苏瑞尔姆电器有限公司	殷琴
+https://mp.weixin.qq.com/s/OgIvmui6GA7rhyuLEGHNfw
+
+## 金龙建设集团有限公司	马金华
+https://mp.weixin.qq.com/s/K-zCDUObIEySnL1vJGfOaw

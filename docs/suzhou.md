@@ -2,36 +2,116 @@
 
 访谈记录
 
-## 好又多超市张敏
-![img.png](public/haoyouduo.png)
-**陈雅新（采访人）**：您之前是否听说过“四千四万”精神？对“四千四万”精神了解程度如何？
+## 江苏华昌化工股份有限公司	胡波
+https://mp.weixin.qq.com/s/K0zWr9gi02yE8fPMhV8x3w
 
-**张敏（受访人）**：有听过，算比较了解吧。
+## 东方盛虹	缪汉根
+https://mp.weixin.qq.com/s/FUGuISY8ofRsDXftYM5YFQ
 
-**陈雅新**：在践行“四千四万”精神的实践中，您的主要经历是怎样的？
+## 亨通集团	崔巍
+https://mp.weixin.qq.com/s/Pak1TfkucOcjQXh9reJHvw
 
-**张敏**：一开始创办这个超市是为了挣钱，然后还有为了生活得更好。因为我们的家族做这方家族的生意，仓储生意仓后来转型为超市。其实创办这个超市前期的困难非常大，像超市的话一般省电比较难一点，还有进货方面的都需要自己慢慢的去磨合，慢慢的去改正。各方面，还有一些其他的一些问题然后慢慢的时间才能沉淀才会做的慢慢越来越好。尤其各方面的货物商品的价格需要去调剂，还有商品的物品需要去调货调配。
+## 苏州固锝电子股份有限公司	吴念博
+https://mp.weixin.qq.com/s/IxnAU230nqA6GCVIySU0Dw
 
+## 江苏国富氢能技术装备股份有限公司	邬品芳
+https://mp.weixin.qq.com/s/pW_FsaOB87aAt-8JjmwIrg
 
-**陈雅新**：您是我们的前辈和榜样，借这个机会，想请您给我们广大青年朋友提一些希望和建议，尤其是您认为“四千四万”精神对于年轻一代的企业家和创业者有什么启示和价值吗？
+## 昆山沪光汽车电器股份有限公司	金成成
+https://mp.weixin.qq.com/s/Xrc5AwrWp3Z4_8mxqRp8PA
 
-**张敏**：市场方面非常的还是很挺明了挺明朗，希望以后各自在这方面的行业能够更进一步吧。
+## 江苏沙钢集团有限公司	沈文荣
+https://mp.weixin.qq.com/s/jcsbVRBTNENeqVFQIZviOQ
 
-**陈雅新**：非常感谢您的配合和支持，我们希望通过这次访谈能够更深入地了解“四千四万”精神的认知、实践现状，为提出“四千四万”精神的传承发展路径提供参考。如果您有任何其他的问题或建议，也请随时告诉我们。再次感谢您的参与！
+## 苏州慧桥自动化设备有限公司	陈颖
+https://mp.weixin.qq.com/s/aXsFD_XpcFfYoYzt1GR5Fw
 
-## 瑞豪汽车贾瑞
- 
-![img_1.png](public/taihaoqiche.png)
-**陈雅新（采访人）**：您之前是否听说过“四千四万”精神？对“四千四万”精神了解程度如何？
+## 江苏永鼎股份有限公司	莫思铭
+https://mp.weixin.qq.com/s/1jt1cb9F0R0BOR5gpHwQYQ
 
-**贾瑞（受访人）**：有听过，算比较了解吧。
+## 苏州贝昂智能科技股份有限公司	冉宏宇 章燕
+https://mp.weixin.qq.com/s/v9AIiogt7nLCHkLcqc-HOA
 
-**陈雅新**：在践行“四千四万”精神的实践中，您的主要经历是怎样的？
+## 维信诺	张德强
+https://mp.weixin.qq.com/s/mqN7CfuynBOqKQnCmIVbhQ
 
-**贾瑞**：我从事汽车租赁行业20多年。平时的工作就主要就是保障政府用车啊事业单位企业还有这个学校，主要是保障他们用车，做一些后勤保障。我当时就是退伍嘛，当兵四年然后就退伍，在部队就学了一个开车嘛，会开车当时就看人家搞这行，退伍了以后也没有工作嘛，然后这个到了地方就看人家干挺好，我们也就学的干挺好，然后就一台车变两台车这样子的。这当然中途吃苦太多了，干司机这个是挺辛苦的，从早到晚起早贪黑的，那没办法这事。还好我们干这行没什么困难，反正就开车，主要就是得保障好这个车辆的，首先是车辆这个维修保养好，另外一个就是服务企业事业单位嘛把人家服务好就行了，也没什么，我们这行还好。
+## 视源股份苏州产业园	王洋
+https://mp.weixin.qq.com/s/Qt2rptHIFH9cUrGyKOHOsw
 
-**陈雅新**：您是我们的前辈和榜样，借这个机会，想请您给我们广大青年朋友提一些希望和建议，尤其是您认为“四千四万”精神对于年轻一代的企业家和创业者有什么启示和价值吗？
+## 苏州赛分科技股份有限公司	黄学英
+https://mp.weixin.qq.com/s/GdE9dxyISku2W-IlOZp7qg
 
-**贾瑞**：这个年代，这个世道就是吃苦耐劳，没什么别的，就是勤快点，吃苦耐劳，没什么捷径，只要肯吃苦，还是能挣到钱的。
+## 苏州天锐易纺织有限公司	潘梦奇
+https://mp.weixin.qq.com/s/DwzgGxi9UDi5W_SAV0IFIg
 
-**陈雅新**：非常感谢您的配合和支持，我们希望通过这次访谈能够更深入地了解“四千四万”精神的认知、实践现状，为提出“四千四万”精神的传承发展路径提供参考。如果您有任何其他的问题或建议，也请随时告诉我们。再次感谢您的参与！
+## 日久光电	陈超
+https://mp.weixin.qq.com/s/CXBP6WeAXl2YvhQwkw6Piw
+
+## 江苏正力新能电池技术股份有限公司	曹芳
+https://mp.weixin.qq.com/s/qQvo3PchMogYP1LBVgbKWA
+
+## 莱克电气股份有限公司	倪祖根
+https://mp.weixin.qq.com/s/yynhOnTEarAIoHBpUhlWyQ
+
+## 波司登	高德康
+https://mp.weixin.qq.com/s/lffIGUst-RAEnCHZ2wsG4Q
+
+## 永臻科技股份有限公司	汪献利
+https://mp.weixin.qq.com/s/Ei5vcJ0ot95pi3bgtlLeyg
+
+## 追觅科技(苏州)有限公司	俞浩
+https://mp.weixin.qq.com/s/QZS6QXW5pKep0jJnCVPqfg
+
+## 攀华集团	李兴华
+https://mp.weixin.qq.com/s/uF9VO5Jue0d2IvfnLviw_g
+
+## 苏州函数集团有限责任公司	章晨
+https://mp.weixin.qq.com/s/QnaTjR4uvd25bP_4udCEMw
+
+## 清陶能源	冯玉川
+https://mp.weixin.qq.com/s/ObI_eCw10U-v34xHK_8OJA
+
+## 康乃德	潘武宾 郑伟
+https://mp.weixin.qq.com/s/1fw2K0OARrN32WUMI6eS0g
+
+## 亨通集团	崔根良
+https://mp.weixin.qq.com/s/x0ObdVQ5pgk0flmvE1RRJg
+
+## 江苏鑫华半导体科技股份有限公司	田新
+https://mp.weixin.qq.com/s/EWioT9Pxuz29yVLGe8ynlw
+
+## 苏州太湖雪丝绸股份有限公司	胡毓芳
+https://mp.weixin.qq.com/s/I4kgmBMEC1US6AuaAHFz6g
+
+## 莱克电气股份有限公司	倪祖根
+https://mp.weixin.qq.com/s/6Y6kf_veDwD5eWwLWJwKng
+
+## 协鑫集团	朱共山
+https://mp.weixin.qq.com/s/Dm7Eq2VTdax7HA2SPQoc5A
+
+## 德胜洋楼	聂圣哲
+https://mp.weixin.qq.com/s/HXGjiZesvMy66hNZ6crTqw
+
+## 胜科纳米	李晓旻
+https://mp.weixin.qq.com/s/Ek6Xby5imPa3bIomMC4fvA
+
+## 盛虹控股集团	缪汉根
+https://mp.weixin.qq.com/s/dH7_0Z5rbnWA6WUo2TXdGw
+
+## 阿特斯阳光电力集团股份有限公司	瞿晓铧
+https://mp.weixin.qq.com/s/KyxwIMnvlymEH6oVdxia9Q
+
+## 苏州康力电梯有限公司	王友林
+https://mp.weixin.qq.com/s/GYfGw-4-udooz5HNTtEJJA
+
+## 江苏金剪刀服饰有限公司	鲍洪尚
+https://mp.weixin.qq.com/s/Uxwlpq9tCrpfxdxOM0RucQ
+
+## 恒力石化	范红卫
+https://mp.weixin.qq.com/s/W-2P6YWoEkKZom6nP0vSgQ
+
+## 通鼎集团	沈小平
+https://mp.weixin.qq.com/s/DipxUYFHgSTjv49olp87nw
+
+## 苏州缘跃纸制品有限公司	陆鸿
+https://mp.weixin.qq.com/s/0b3bjCaTex8tw0aBfYuw8w

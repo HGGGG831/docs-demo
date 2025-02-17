@@ -2,36 +2,114 @@
 
 访谈记录
 
-## 好又多超市张敏
-![img.png](public/haoyouduo.png)
-**陈雅新（采访人）**：您之前是否听说过“四千四万”精神？对“四千四万”精神了解程度如何？
+## 天合光能 高海纯
+https://mp.weixin.qq.com/s/4rkQIvaVJ2EUO5Hq8XgN3g
 
-**张敏（受访人）**：有听过，算比较了解吧。
+## 中创新航科技集团 刘静瑜
+https://mp.weixin.qq.com/s/inXzPpRSEtaUxJR3NlFNUw
 
-**陈雅新**：在践行“四千四万”精神的实践中，您的主要经历是怎样的？
+## 万帮能源 邵丹薇
 
-**张敏**：一开始创办这个超市是为了挣钱，然后还有为了生活得更好。因为我们的家族做这方家族的生意，仓储生意仓后来转型为超市。其实创办这个超市前期的困难非常大，像超市的话一般省电比较难一点，还有进货方面的都需要自己慢慢的去磨合，慢慢的去改正。各方面，还有一些其他的一些问题然后慢慢的时间才能沉淀才会做的慢慢越来越好。尤其各方面的货物商品的价格需要去调剂，还有商品的物品需要去调货调配。
+https://mp.weixin.qq.com/s/kYDGpFRe0lfSvvffJtq6ig
+
+## 百兴集团 茹伯兴
+
+https://mp.weixin.qq.com/s/RK0iO5tk864yKw4u4-G8vg
+
+## 江苏亚邦染料股份有限公司 许小初
+https://mp.weixin.qq.com/s/0FNGJNPVIFLKXG8QfiYpVA
+
+## 九洲投资集团 刘灿放
+https://mp.weixin.qq.com/s/WWTgWJfGdhgVXXlVnjPGPg
+
+## 常州华旋传感技术有限公司 黄燕
+https://mp.weixin.qq.com/s/hxH4EfF1gCM2BngkRUszSQ
+
+## 瑞声科技 潘中来
+https://mp.weixin.qq.com/s/zoaB0NlqWt2_gz2c_AIOAA
+
+## 今创控股集团 俞金坤
+https://mp.weixin.qq.com/s/gBYe2paECtBDvO_ePb79ag
+
+## 江苏江南实业集团 梅泽锋
+https://mp.weixin.qq.com/s/922vPCeGJq0EsK-XjVdbkA
 
 
-**陈雅新**：您是我们的前辈和榜样，借这个机会，想请您给我们广大青年朋友提一些希望和建议，尤其是您认为“四千四万”精神对于年轻一代的企业家和创业者有什么启示和价值吗？
+## 江苏金峰集团 徐贵生
+https://mp.weixin.qq.com/s/Yql9NOHhkgvrLrloN1_THg
 
-**张敏**：市场方面非常的还是很挺明了挺明朗，希望以后各自在这方面的行业能够更进一步吧。
+## 星宇股份 周晓萍
+https://mp.weixin.qq.com/s/2KTTJn4BOGdEaTeYkKykYA
 
-**陈雅新**：非常感谢您的配合和支持，我们希望通过这次访谈能够更深入地了解“四千四万”精神的认知、实践现状，为提出“四千四万”精神的传承发展路径提供参考。如果您有任何其他的问题或建议，也请随时告诉我们。再次感谢您的参与！
 
-## 瑞豪汽车贾瑞
+## 江苏立华牧业股份有限公司 程立力
+https://mp.weixin.qq.com/s/BwArIc162Hh6I-8INSSrHg
+
+
+## 恒立液压 汪立平
+https://mp.weixin.qq.com/s/wCjLI8vlGJsq_ftqRAk3YA
+
+
+## 江苏华朋集团 钱洪金
+https://mp.weixin.qq.com/s/Xyr-vPjZHGi1G033tzqMrA
+
+
+## 常州优谷新能源科技股份有限公 顾永久
+https://mp.weixin.qq.com/s/p5yjzDmC5f7Em0Ckk4HMfw
+
+
+## 江苏上上电缆集团 丁山华
+https://mp.weixin.qq.com/s/BpYSFFRw50k2RN6cpIL9gw
+
+
+## 江苏创健医疗科技股份有限公司 钱福卿
+https://mp.weixin.qq.com/s/Lw5BWUYayB66_k2DHskxUQ
+
+
+## 常州亿晶光电科技股份有限公司 唐骏
+https://mp.weixin.qq.com/s/L7rf6wRD1OwN3RMWhzUTvA
+
+
+## 江苏天空控股集团有限公司 刘鲸
+https://mp.weixin.qq.com/s/QSokqB-3I_fIaz-cILN95w
+
+
+## 常州东方伊思达染织有限公司 恽姿
+https://mp.weixin.qq.com/s/QSokqB-3I_fIaz-cILN95w
+
+
+## 久诺集团 王志鹏
+https://mp.weixin.qq.com/s/TF175qTlxvE-lHdV-aoOWw
+
+
+## 常州新能源汽车轴承上市公司 李树华
+https://mp.weixin.qq.com/s/fljDdOvnp87ckdHWGA7cOQ
+
+
+## 常州大国国际旅行社 张彐君
+https://mp.weixin.qq.com/s/Kp3_-1KdIbdghM9jWR5ifA
+
+
+## 新城控股 王晓松
+https://mp.weixin.qq.com/s/JLPjdRLPuZB0BD-motcy9g
+
+
+## 江苏峰度控股集团有限公司 骆国峰
+https://mp.weixin.qq.com/s/rLNsBXUS6visseizAhNLtA
+
+
+## 新誉集团 周立成
+https://mp.weixin.qq.com/s/Cze8Yg1Oa0Kbm_6chWIlmQ
+
+
+## 常州时薪族信息科技有限公司 钱存稳
+https://mp.weixin.qq.com/s/imIARq9gSPica7oHqwcr4A
+
+
+## 江苏洛凯机电股份有限公司 臧文明
+https://mp.weixin.qq.com/s/FbQmbJkAu1a9AKfsMhQxYw
+
+
+
+
  
-![img_1.png](public/taihaoqiche.png)
-**陈雅新（采访人）**：您之前是否听说过“四千四万”精神？对“四千四万”精神了解程度如何？
-
-**贾瑞（受访人）**：有听过，算比较了解吧。
-
-**陈雅新**：在践行“四千四万”精神的实践中，您的主要经历是怎样的？
-
-**贾瑞**：我从事汽车租赁行业20多年。平时的工作就主要就是保障政府用车啊事业单位企业还有这个学校，主要是保障他们用车，做一些后勤保障。我当时就是退伍嘛，当兵四年然后就退伍，在部队就学了一个开车嘛，会开车当时就看人家搞这行，退伍了以后也没有工作嘛，然后这个到了地方就看人家干挺好，我们也就学的干挺好，然后就一台车变两台车这样子的。这当然中途吃苦太多了，干司机这个是挺辛苦的，从早到晚起早贪黑的，那没办法这事。还好我们干这行没什么困难，反正就开车，主要就是得保障好这个车辆的，首先是车辆这个维修保养好，另外一个就是服务企业事业单位嘛把人家服务好就行了，也没什么，我们这行还好。
-
-**陈雅新**：您是我们的前辈和榜样，借这个机会，想请您给我们广大青年朋友提一些希望和建议，尤其是您认为“四千四万”精神对于年轻一代的企业家和创业者有什么启示和价值吗？
-
-**贾瑞**：这个年代，这个世道就是吃苦耐劳，没什么别的，就是勤快点，吃苦耐劳，没什么捷径，只要肯吃苦，还是能挣到钱的。
-
-**陈雅新**：非常感谢您的配合和支持，我们希望通过这次访谈能够更深入地了解“四千四万”精神的认知、实践现状，为提出“四千四万”精神的传承发展路径提供参考。如果您有任何其他的问题或建议，也请随时告诉我们。再次感谢您的参与！
