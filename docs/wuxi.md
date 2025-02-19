@@ -110,142 +110,214 @@
 的配合，我们青年大学生和企业家会有吃苦的精神和强大的信心，为“四千四万”精神的传承和发展贡献我们的青年力量。
 
 ## 江苏锦绣铝业有限公司	戴祖军
+https://mp.weixin.qq.com/s/_SJEp1bd2Wz-IcHOJAHRdw
 
 ## 无锡小天鹅建筑机械有限公司	李石生
+https://mp.weixin.qq.com/s/9hs2HmwINEqiCoSjeb0y4g
 
 ## 远景集团	张雷
+https://mp.weixin.qq.com/s/tHKDo4IfmjBhos6HaGQ6Tw
 
 ## 江苏长电科技股份有限公司	王新潮
+https://mp.weixin.qq.com/s/BEuMV1gCtZ65LG-p24cSPw
 
 ## 无锡雪浪数制科技有限公司	王峰
+https://mp.weixin.qq.com/s/t9YmHx7xJCe_LKfZRFF90w
 
 ## 江阴长仪集团有限公司	陈建章
+https://mp.weixin.qq.com/s/3KLaE0VP2VZPT-lwcyBXCA
 
 ## 双良集团	缪双大
+https://mp.weixin.qq.com/s/PkQb8Y4pYSSTxNV93unLdA
 
 ## 江苏三联生物工程股份有限公司	施启尧
+https://mp.weixin.qq.com/s/eUb8OUrfeTVZj1-tDgsFbA
 
 ## 上机数控	杨建良
+https://mp.weixin.qq.com/s/0pKYkZpd_AKSfPkOkYTT4Q
 
 ## 江阴贝瑞森生化技术有限公司	顾铭
+https://mp.weixin.qq.com/s/HCxr4XV6kNyzAj_O-dPJMQ
 
 ## 无锡市恒和环保科技有限公司	杨延相
+https://mp.weixin.qq.com/s/pgKTVe0643hHBm8kOlXHbA
 
 ## 墨境天合无锡数字图像科技有限公司	徐建
+https://mp.weixin.qq.com/s/I-kx5da5zyYdx4gJS27A4A
 
 ## 红豆集团	周海江
+https://mp.weixin.qq.com/s/tRDPBfG-ZuH4-9LAqLhTIA
 
 ## 海澜之家	周立宸
+https://mp.weixin.qq.com/s/He_PHaPNZcKJtbU42UVR_w
 
 ## 无锡明恒混合动力技术有限公司	洪波昌
+https://mp.weixin.qq.com/s/RI-4iBUqlw2hzj9hzSfnbA
 
 ## 双良节能	缪文彬
+https://mp.weixin.qq.com/s/fxZLiCSnahvxQR1Q8rRdPQ
 
 ## 长电科技	王新潮
+https://mp.weixin.qq.com/s/pGMvX5EL4-jbZ1Pniu8Tiw
 
 ## 无锡微研股份有限公司	蔡磊明
+https://mp.weixin.qq.com/s/2N2yk4o_mt7HseowvDmfsw
 
 ## 远景能源	张雷
+https://mp.weixin.qq.com/s/wymVV8kWv_lVaFm2VUSmTw
 
 ## 无锡鼎邦	王仁良
+https://mp.weixin.qq.com/s/R3Z3F34BFO8DzbYRYP2xmg
 
 ## 江阴模塑集团	曹克波
+https://mp.weixin.qq.com/s/lbPtwdtzJD04BP0CyzgThg
 
 ## 海澜之家	周建平
+https://mp.weixin.qq.com/s/hA7lGZne-1TqMNJ8IMLxoA
 
 ## 无锡晶晟科技股份有限公司	冯科杰
+https://mp.weixin.qq.com/s/cSHjGjIsI6JcX332-k49fA
 
 ## 兴达泡塑	华若中
+https://mp.weixin.qq.com/s/i4FItUkSvAtZZidKTz-bRg
 
 ## 无锡先导智能装备股份有限公司	王燕清
+https://mp.weixin.qq.com/s/K-S6fXUevDwJJucLsO_KWg
 
 ## 申锡机械集团有限公司	吴仁山
+https://mp.weixin.qq.com/s/DIXIDpzwb6SpkG92i2bAnA
 
 ## 无锡华光汽车部件集团	薄铸栋
+https://mp.weixin.qq.com/s/vwCW0br7qWw7gm477CpLUQ
 
 ## 药明康德	李革
+https://mp.weixin.qq.com/s/adUGRNMXnWevlD8uiLHZxA
 
 ## 江苏华宏实业集团有限公司	胡士勇
+https://mp.weixin.qq.com/s/hpyHfdJ4Sa13KqrgSQmkeg
 
 ## 江苏华宏实业集团有限公司	胡品贤
+https://mp.weixin.qq.com/s/hpyHfdJ4Sa13KqrgSQmkeg
 
 ## 红豆集团有限公司	周耀庭
+https://mp.weixin.qq.com/s/7aKYqA_JqV2EdePa6zR1AQ
 
 ## 上能电气股份有限公司	吴强
+https://mp.weixin.qq.com/s/6bUA02EzoPhEHwa4UetwCw
 
 ## 江阴天江药业有限公司	俞敏
+https://mp.weixin.qq.com/s/OlrFvBo3OOj8xyqMMblL9g
 
 ## 无锡蠡湖增压技术股份有限公司	王洪其
+https://mp.weixin.qq.com/s/274txhVLz41XfdybiAnnDQ
 
 ## 法尔胜泓昇集团	周江
+https://mp.weixin.qq.com/s/NRZfPLvjuHLSoBkIj0iztg
 
 ## 华润微电子	李虹
+https://mp.weixin.qq.com/s/9XaR8qkOGEg4eDOQbQGCWw
 
 ## 国合环境高端装备制造基地	邵焜琨
+https://mp.weixin.qq.com/s/mCwwuG0P1vsqidrfy3nWPQ
 
 ## 恩纳基智能科技无锡有限公司	吴超
+https://mp.weixin.qq.com/s/-PhpUzgpZBcgdogLYb4kgg
 
 ## 江苏泰源环保科技股份有限公司	陆纯 潘海龙
+https://mp.weixin.qq.com/s/tf4LvsoE7LukroXX0iSSJQ
 
 ## 苏嘉耘林集团	龚育才
+https://mp.weixin.qq.com/s/lMXF5m8K76cGUPtSyCpZVA
 
 ## 无锡百泰克生物技术有限公司	周志图
+https://mp.weixin.qq.com/s/RtZYIPNvDAaX9XfX7GFXvw
 
 ## 海斯凯尔医学技术有限公司	邵金华
+https://mp.weixin.qq.com/s/LzGC0ZVWJdYOj6780Sbfbw
 
 ## 江苏威腾体育产业股份有限公司	张妍
+https://mp.weixin.qq.com/s/jvQkO1JBJwjBYTDVsQQBOA
 
 ## 中恒大耀纺织科技有限公司	朱建军
+https://mp.weixin.qq.com/s/XiBIbgTNSXKYvkN2y93cRg
 
 ## 江苏飞慕生物科技有限公司	史春龙
+https://mp.weixin.qq.com/s/kUs3xl8oleHHW_q7wuUwsg
 
 ## 无锡好轻松盲人推拿按摩有限公司	严三媛
+https://mp.weixin.qq.com/s/NyTcWRgsststOfLXE0OGqw
 
 ## 百尔制冷（无锡）有限公司	胡国强
+https://mp.weixin.qq.com/s/N92Kuqh6ztgMextTCZfZ0w
 
 ## 爱景智能（无锡）有限公司	孙云川
+https://mp.weixin.qq.com/s/bacd_CgqirTnNOZfhdE_Ng
 
 ## 江苏无锡朝阳集团股份有限公司	张君君
+https://mp.weixin.qq.com/s/-RR4Aud_1QXBXp_JL4CGCA
 
 ## 江苏才标信息科技有限公司	袁小琼
+https://mp.weixin.qq.com/s/1MFbe22KGoz4FDjewETzzA
 
 ## 中粮工程科技股份有限公司	姚专
+https://mp.weixin.qq.com/s/QMbjlVnBp6rhOh__csoqSg
 
 ## 无锡耐思生命科技股份有限公司	杨卫东
+https://mp.weixin.qq.com/s/1pAwq7bpf-xCi7Oax_KmyA
 
 ## 无锡九方科技有限公司	周峥
+https://mp.weixin.qq.com/s/GXqF_F9t0CkVfAQ0r70i9Q
 
 ## 江苏雅克科技股份有限公司	沈琦
+https://mp.weixin.qq.com/s/i4v7LR_Ys4Fqi2sxFyjyMA
 
 ## 江苏阳光集团有限公司	陈丽芬
+https://mp.weixin.qq.com/s/TpX4gJtUQBPHMmZm-kL3mg
 
 ## 江苏新日电动车股份有限公司	张崇舜
+https://mp.weixin.qq.com/s/zd712KXKPFbLvwb7CikD4Q
 
 ## 凯龙高科技股份有限公司	臧志成
+https://mp.weixin.qq.com/s/9XJeQPq6_ZWIJuAJ0VFHtA
 
 ## 华云数据控股集团	许广彬
+https://mp.weixin.qq.com/s/7dCWC_Em47zYrdloJ18GkQ
 
 ## 朗新科技股份有限公司	张明平
+https://mp.weixin.qq.com/s/hxyU3nxCyj-9q4h90qNkOA
 
 ## 祥生医疗	莫若理
+https://mp.weixin.qq.com/s/mJ0zgzZ--D-__Vinc6AgUQ
 
 ## 晶众股份	庄斌
+https://mp.weixin.qq.com/s/LhtOpwQnRwJ55FiMUWOkvg
 
 ## 无锡市玉祁酒业有限公司	姚永海
+https://mp.weixin.qq.com/s/lthF3bI5Np_y2MIv9TdzNA
 
 ## 塬数科技	逄振
+https://mp.weixin.qq.com/s/t6ZLvs0_P9bH-gjcKktjVw
 
 ## 无锡信捷电气有限公司	李新
+https://mp.weixin.qq.com/s/KlfrIVSRYj_YNh0DinFu6A
+
 ## 臻和科技公司	杜波
+https://mp.weixin.qq.com/s/crfx3OZwNnc5rCtGYjCCiA
 
 ## 无锡华光汽车部件科技股份有限公司	薄可晨
+https://mp.weixin.qq.com/s/rVyzz6InBcxR_4fg_PoopA
 
 ## 中科海拓（无锡）科技有限公司	刘涛
+https://mp.weixin.qq.com/s/WZcQZ3SYeZD8S3FSggrssQ
 
 ## 无锡帝科电子材料股份有限公司	史卫利
+https://mp.weixin.qq.com/s/KG2JrZyPyyaIS8Rd5t_XxA
 
 ## 鹏鹞环保股份有限公司	王鹏鹞
+https://mp.weixin.qq.com/s/iDFSVZPKHWFalbosdxhnIg
 
 ## 江南模塑科技股份有限公司	曹克波
+https://mp.weixin.qq.com/s/s5ai0Nzv6hjHLlrB8NBKYA
 
 ## 无锡一棉纺织集团	周晔珺
+https://mp.weixin.qq.com/s/nCIzAMW2F4joLqY0JkgjNQ
